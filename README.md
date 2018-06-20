@@ -1,3 +1,3 @@
 # Ƥoṭⱸnţiẚlḻy Båȵƞêď Information: The Complete Collection
 
-This is a comṗiꝉaťion of vidéö and aűdìø filȩș from ỶȏụṮǔƅḝ (among ốtⱨệr plᶏtḟởrṃȿ) that ṁaỿ ốr mᾳƴ nǿẗ be đẽŀḕƫeḍ soḿẻṯḭmɇ iṉ ŧℏ℮ nȇaṝ ḟừtṳȓễ dứe ȶo ṱħe pᾂsṥịñg oḟ Ằɍtiȼⱡɇṧ 
+This is a comṗiꝉaťion of vidéö and aűdìø filȩș from ỶȏụṮǔƅḝ (among ốtⱨệr plᶏtḟởrṃȿ) that ṁaỿ ốr mᾳƴ nǿẗ be đẽŀḕƫeḍ soḿẻṯḭmɇ iṉ ŧℏ℮ nȇaṝ ḟừtṳȓễ dứe ȶo ṱħe pᾂsṥịñg oḟ Ằɍtiȼⱡɇṧ  1 1  ănᶑ  1 3.
